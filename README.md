@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rafiqul-Ala-Mahid
 - 👀 I’m interested in ... learning different exceptional things
-- 🌱 I’m currently learning ...developing
+- 🌱 I’m currently learning ...something exceptional
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
